@@ -1,2 +1,8 @@
 # app-dev
 My first Repository
+# MY FAVORITE MOVIE  
+## ACTION/ANIME SERIES
+
+**FROM NETFLIX**
+1. BAD BOYS ROE OR DIE
+2. ONE PIECE
